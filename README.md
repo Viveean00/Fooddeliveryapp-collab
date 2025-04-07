@@ -43,7 +43,7 @@ If you're a junior dev or coding enthusiast, you're welcome to:
 ## Let's Build Together!
 
 Want to join the project or just say hi?  
-**Drop a message**, create an issue, or reach out on [Twitter](#) / [LinkedIn](#) — I’d love to collaborate!
+**Drop a message**, create an issue, or reach out on [Twitter](https://x.com/viveean00?s=21) / [LinkedIn](https://www.linkedin.com/in/vivian-daniel-31b66b269) — I’d love to collaborate!
 
 ---
 
